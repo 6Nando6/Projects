@@ -1,1 +1,1 @@
-# Projetos de atividades e dasafios de tecnologias
+# Projetos de atividades e desafios de tecnologias
